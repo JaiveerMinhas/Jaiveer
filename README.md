@@ -6,3 +6,4 @@ I am good in many diffrent sports.
 I played soccer for 9 seasons.
 I played in many tournements.
 I won almost every tournment.
+I was very good.
