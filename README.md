@@ -7,3 +7,4 @@ I played soccer for 9 seasons.
 I played in many tournements.
 I won almost every tournment.
 I was very good.
+Today is Wednesday and non uniform day.
